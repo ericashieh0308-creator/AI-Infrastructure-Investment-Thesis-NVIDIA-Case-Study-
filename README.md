@@ -67,7 +67,7 @@ Despite elevated valuation, long-term growth potential may justify the premium.
 
 ## Investment Recommendation
 
-**BUY (Long-term)
+**BUY (Long-term)**
 
 NVIDIA is well-positioned to benefit from the structural expansion of AI infrastructure.
 
